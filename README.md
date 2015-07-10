@@ -1,3 +1,3 @@
 # fun-Friday-
-Things that make Friday's awesome 
+Shoes 
 Friday outfits 
